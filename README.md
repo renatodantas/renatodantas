@@ -1,4 +1,4 @@
-### Hi all, people! I'm Renato Dantas. 👋
+### I'm Renato Dantas. 👋
 
 ![visitors](https://visitor-badge.glitch.me/badge?page_id=page.id)
 
